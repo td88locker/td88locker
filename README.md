@@ -3,8 +3,13 @@
 SĐT: 0367581902
 Website: <a href="https://td88.locker/">https://td88.locker/</a>
 Hashtag: #TD88 #nhacaiuytin #CaCuocTrucTuyen #baomatcao
+<a href="https://www.facebook.com/td88locker/">https://www.facebook.com/td88locker/</a><br>
+<a href="https://www.youtube.com/@td88locker">https://www.youtube.com/@td88locker</a><br>
 <a href="https://www.reddit.com/user/td88locker/">https://www.reddit.com/user/td88locker/</a><br>
 <a href="https://www.pinterest.com/td88locker/">https://www.pinterest.com/td88locker/</a><br>
 <a href="https://x.com/td88locker">https://x.com/td88locker</a><br>
 <a href="https://www.linkedin.com/in/td88locker/">https://www.linkedin.com/in/td88locker/</a><br>
-<a href="https://groups.google.com/g/td88locker">https://groups.google.com/g/td88locker</a>
+<a href="https://groups.google.com/g/td88locker">https://groups.google.com/g/td88locker</a><br>
+<a href="https://www.quora.com/profile/TD88-6">https://www.quora.com/profile/TD88-6</a><br>
+<a href="https://www.gta5-mods.com/users/td88locker">https://www.gta5-mods.com/users/td88locker</a><br>
+<a href="https://heylink.me/td88locker">https://heylink.me/td88locker</a>
